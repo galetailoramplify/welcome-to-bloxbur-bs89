@@ -1,4 +1,4 @@
-#  
+#  hidden welcome to bloxburg Scripts offers the most advanced welcome to bloxburg Script, with auto-farm and teleport. Perfect for dominating any match.
 
 
 
